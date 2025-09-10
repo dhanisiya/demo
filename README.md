@@ -5,3 +5,6 @@ I took in Biology in school.
 My father is farmering.
 My mother is wages.
 My brother is second year college.
+My favourtie person is My mother.
+My mom is very inteligent.
+
