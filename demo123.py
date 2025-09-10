@@ -1,0 +1,2 @@
+print("ranjani")
+print("dhanisiya")
